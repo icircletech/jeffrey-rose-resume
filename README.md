@@ -21,7 +21,8 @@ Evolved from thriving retail location that fixed thousands of local laptops, iPa
 - AI tools: Grok, ChatGPT-keeps me quick, not replaced.
 - Self-taught. Open to advisory, leadership, or whatever else fits-happy to talk roles big or small.
   \
-  \
+</br>
+
 _That's the snapshot-I've got way more tricks up my sleeve, happy to unpack them over coffee or call. Just say when._
 
 
